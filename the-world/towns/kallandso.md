@@ -16,4 +16,10 @@ Not forgetting his goal of improving the canal and bridge, locks were put in pla
 
 In a display of loyalty towards his hometown and province to [Garvia](garvia/), Femfe decided to adopt a flag mimicking that of the one belonging to the Church of Garvia (an angel imposed on a radiant sun), only with the colors changed to black and gold.
 
-In accordance to the mayor’s goals of improving infrastructure and working for the greater good of the Nordic world, Kållandsö would join the North Sea League.
+In accordance to the mayor’s goals of improving infrastructure and working for the greater good of the Nordic world, Kållandsö would join the North Sea League soon after its founding.
+
+## Development
+
+As a neighbouring town to the national capital of Krakevik, Kållandsö continued to develop as a key settlement in the region. \
+Leveraging the interest among new players to settle in or around the capital, the area that would gain the name "Toll Point City" was established. \
+Toll Point City is today a quaint neighborhood constisting of a few small houses mostly built by newcomers to the server.
